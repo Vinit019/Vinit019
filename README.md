@@ -1,5 +1,5 @@
 # 💫 About Me:
-’m currently looking for a job opportunity in the field of Data Analytics and Data Science.
+i’m currently looking for a job opportunity in the field of Data Analytics and Data Science.
 
 
 ## 🌐 Socials:
